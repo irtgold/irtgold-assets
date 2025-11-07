@@ -1,0 +1,1 @@
+# irtgold-assets
